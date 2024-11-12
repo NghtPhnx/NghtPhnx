@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NghtPhnx
-- 👀 I’m interested in DJing, Tailoring, Clothing Construction, Gardening
-- 🌱 I’m currently learning more about DJing
+- 👀 I’m interested in DJing, Tailoring, Clothing Construction, Gardening.
+- 🌱 I’m currently learning more about DJing and Bullet Journaling.
 - 😄 Pronouns: He/They/Any
 - ⚡ Fun fact: Went to school at SVA, Santa Monica College and UCR.
 -  I am interested in the intersection of art and science for creative expression.
